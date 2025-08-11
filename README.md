@@ -1,13 +1,13 @@
 # hellooo!!✮ ⋆ ˚｡𖦹 ⋆｡°✩
-✩₊˚.⋆☾⋆⁺₊✧
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧
  ![Image](https://github.com/user-attachments/assets/817bb278-7903-433f-aaab-a8903a7b4779)
  ✩₊˚.⋆☾⋆⁺₊✧
 
 my nickname is bagel , but you can call me futuristic or maniac!(ˆᗜˆ)
 
-feel free to int with me!! i dont bite i promise /ᐠ- w -マ
+feel free to int with me!! i dont bite i promise /ᐠ˵- ⩊ -˵マ
 
-𓆝 𓆟 𓆞 𓆝 𓆟
+𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 ..feesh.𓆉
 
 you might see me on docks, boat , mafias or hangouts!! 
 
@@ -99,3 +99,11 @@ thanks for reading , goodbye ! (ˆᗜˆ)
 ![Image](https://github.com/user-attachments/assets/d7060087-f147-4958-b02d-e91cb1ced0b7)
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩
+
+
+
+
+
+also
+
+    HOLD ON TIGHT💥💥💥💥💥MY COMPASS IS CURIOSITY🔥🔥MY COMPASS IS CURIOSITYYYY🔥🔥🔥🔥🔥🔥IM PIERCING THROUGH THE ROPE THAT STRANGLED YOU🔥🔥🔥🔥AND ME💥💥💥💥  
