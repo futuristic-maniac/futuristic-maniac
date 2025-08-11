@@ -106,4 +106,4 @@ thanks for reading , goodbye ! (ˆᗜˆ)
 
 also
 
-    HOLD ON TIGHT💥💥💥💥💥MY COMPASS IS CURIOSITY🔥🔥MY COMPASS IS CURIOSITYYYY🔥🔥🔥🔥🔥🔥IM PIERCING THROUGH THE ROPE THAT STRANGLED YOU🔥🔥🔥🔥AND ME💥💥💥💥  
+    Bon voyage ! Your mermaid's setting sail , at last . Full speed towards your heart, Full speed towards your heart . Ive had enough , im reclaiming myself , the aft. Leaving behind the hurt , leaving behind the hurt , WHEN IT SNAPPED , MY COMPASS WAS SWALLOWED BY THE SEA , MY COMPASS WAS SWALLOWED BY THE SEA , i curse this relationship between you and me . i wanted blood , i wanted black and white . clear cut , your evils predifined , your evils predifined . HOLD ON TIGHT . MY COMPASS IS CURIOSITY! MY COMPASS IS CURIOSITYY! IM PEIRCING THROUGH THE ROPE THAT STRANGLED YOU , AND ME. LET US BE FREE!
