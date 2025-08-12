@@ -1,6 +1,6 @@
 # hellooo!!✮ ⋆ ˚｡𖦹 
 
-![Image](https://github.com/user-attachments/assets/efa09960-016b-4efe-84a1-4feac4c9e16a)![Image](https://github.com/user-attachments/assets/f7d8439e-1e66-451e-adca-8879b1482b05)
+![Image](https://github.com/user-attachments/assets/efa09960-016b-4efe-84a1-4feac4c9e16a)![Image](https://github.com/user-attachments/assets/3839ac02-16e8-4d5f-90c1-1397e82b3c8f)
 
  ![Image](https://github.com/user-attachments/assets/1c210a5a-6c1e-4994-b783-09d157d0fcaf)![Image](https://github.com/user-attachments/assets/1ef6a90b-9e0e-4961-823e-b001c352dafd)![Image](https://github.com/user-attachments/assets/afec3b8e-04fc-4117-afa8-a023bc0853a8)![Image](https://github.com/user-attachments/assets/f9a94cd9-7506-45f8-8ba7-8e8e3e8556ca)![Image](https://github.com/user-attachments/assets/4c3c4545-5467-470e-9e38-98519bd350d2)![Image](https://github.com/user-attachments/assets/b4e0b2d1-e689-432b-8de8-d03a48cfd0fa)![Image](https://github.com/user-attachments/assets/d1a12900-a6c3-4ef4-a864-132471090ab8)![Image](https://github.com/user-attachments/assets/f9e8f915-1b81-4aa4-a528-645451e2fefb)![Image](https://github.com/user-attachments/assets/35f7cfbb-6ca3-4d75-a2e4-f63f40fdcce0) 
  
@@ -13,6 +13,7 @@ feel free to int with me!! i dont bite i promise /ᐠ˵- ⩊ -˵マ
 you might see me on docks, boat , mafias or hangouts!! 
 
 i sometimes do anon whisps with my friends , thats a random fact but lets add that there. why not ?( ¬_¬")
+![Image](https://github.com/user-attachments/assets/f7d8439e-1e66-451e-adca-8879b1482b05)
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
@@ -38,10 +39,7 @@ uh oh , here comes the FANDOM LIST!!!( ˶°ㅁ°) !!
 > Puella Magi Madoka Magica
 
 
-> Vocaloid
-
-
-> UTAU
+> PJSK/Vocaloid
 
 
 > HFJONE
@@ -95,10 +93,9 @@ my favourite characters are,,
 
 
 alright , thats all (..◜ᴗ◝..). ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
-thanks for reading , goodbye ! (ˆᗜˆ)
+thanks for reading , goodbye ! (..◜ᴗ◝..)
 
-![Image](https://github.com/user-attachments/assets/d7060087-f147-4958-b02d-e91cb1ced0b7)
-
+![Image](https://github.com/user-attachments/assets/5846de88-a325-432d-9cb7-f85a294b7471)![Image](https://github.com/user-attachments/assets/2215051c-3dbb-4330-9e88-303d5143d4ab)
 ✮ ⋆ ˚｡𖦹 ⋆｡°✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
 
