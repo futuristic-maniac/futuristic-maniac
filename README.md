@@ -100,6 +100,9 @@ thanks for reading , goodbye ! (..◜ᴗ◝..)
 
 
 
+![Image](https://github.com/user-attachments/assets/f833548b-b922-4aca-9279-9cb9a0d49c37)
+
+me with my online pookies (loaf and mae) that ill sadly never meet irl :(
 
 also
 
