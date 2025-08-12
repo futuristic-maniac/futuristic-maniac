@@ -93,7 +93,7 @@ my favourite characters are,,
 alright , thats all (..◜ᴗ◝..). ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
 thanks for reading , goodbye ! (..◜ᴗ◝..)
 
-![Image](https://github.com/user-attachments/assets/5846de88-a325-432d-9cb7-f85a294b7471)![Image](https://github.com/user-attachments/assets/2215051c-3dbb-4330-9e88-303d5143d4ab)
+![Image](https://github.com/user-attachments/assets/5846de88-a325-432d-9cb7-f85a294b7471)
 
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚
