@@ -15,7 +15,7 @@ i sometimes do anon whisps with my friends , thats a random fact but lets add th
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
-my pookies are loaf (loafism) and baguette ! she sadly doesnt have a github..sobs quietly
+my pookies are loaf (loafism) and baguette / mae (mae-dncortakeinspo) !!ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
 
 
 
