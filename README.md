@@ -4,13 +4,14 @@
  
 my nickname is bagel , but you can call me futuristic or maniac!(ˆᗜˆ)
 
-feel free to int with me!! i dont bite i promise /ᐠ˵- ⩊ -˵マ
+feel free to int with me!! i dont bite i promise /ᐠ˵- ⩊ -˵マ(CRINGE!!!) 
 
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 ..feesh.𓆉
 
 you might see me on docks, boat , mafias or hangouts!! 
 
 i sometimes do anon whisps with my friends , thats a random fact but lets add that there. why not ?( ¬_¬")
+
 ![Image](https://github.com/user-attachments/assets/f7d8439e-1e66-451e-adca-8879b1482b05)
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✩
