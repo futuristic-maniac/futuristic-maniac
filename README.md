@@ -2,7 +2,7 @@
 
  ![Image](https://github.com/user-attachments/assets/1c210a5a-6c1e-4994-b783-09d157d0fcaf)![Image](https://github.com/user-attachments/assets/1ef6a90b-9e0e-4961-823e-b001c352dafd)![Image](https://github.com/user-attachments/assets/afec3b8e-04fc-4117-afa8-a023bc0853a8)![Image](https://github.com/user-attachments/assets/f9a94cd9-7506-45f8-8ba7-8e8e3e8556ca)![Image](https://github.com/user-attachments/assets/4c3c4545-5467-470e-9e38-98519bd350d2)![Image](https://github.com/user-attachments/assets/b4e0b2d1-e689-432b-8de8-d03a48cfd0fa)![Image](https://github.com/user-attachments/assets/d1a12900-a6c3-4ef4-a864-132471090ab8)![Image](https://github.com/user-attachments/assets/f9e8f915-1b81-4aa4-a528-645451e2fefb)![Image](https://github.com/user-attachments/assets/35f7cfbb-6ca3-4d75-a2e4-f63f40fdcce0) 
  
-my nickname is bagel , but you can call me futuristic or maniac!(ˆᗜˆ)
+my nickname is bagel , but you can call me futuristic or maniac!(or just call me bug. thats my secret nickname..shhh(ˆᗜˆ)
 
 feel free to int with me!! i dont bite i promise /ᐠ˵- ⩊ -˵マ(CRINGE!!!) 
 
@@ -106,3 +106,7 @@ me with my online pookies (loaf and mae) that ill sadly never meet irl :(
 also
 
     Bon voyage ! Your mermaid's setting sail , at last . Full speed towards your heart, Full speed towards your heart . Ive had enough , im reclaiming myself , the aft. Leaving behind the hurt , leaving behind the hurt , WHEN IT SNAPPED , MY COMPASS WAS SWALLOWED BY THE SEA , MY COMPASS WAS SWALLOWED BY THE SEA , i curse this relationship between you and me . i wanted blood , i wanted black and white . clear cut , your evils predifined , your evils predifined . HOLD ON TIGHT . MY COMPASS IS CURIOSITY! MY COMPASS IS CURIOSITYY! IM PEIRCING THROUGH THE ROPE THAT STRANGLED YOU , AND ME. LET US BE FREE!
+
+
+
+im not a lc fan i just like the songs (i know its not from forsaken im not that type of fan vro)
