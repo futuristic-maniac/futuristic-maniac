@@ -41,10 +41,10 @@ uh oh , here comes the FANDOM LIST!!!( ˶°ㅁ°) !!
 > PJSK/Vocaloid
 
 
+> All Studio Investigrave games !!
+
+
 > HFJONE
-
-
-> BFDI
 
 
 > TPOT
@@ -53,7 +53,7 @@ uh oh , here comes the FANDOM LIST!!!( ˶°ㅁ°) !!
 > BFDIA
 
 
-> BFB
+> BFDI
 
 
 > and like ALOT MORE object shows. basically, im in the osc!(..◜ᴗ◝..)
