@@ -6,7 +6,7 @@
  
  . dont copy my skins.. 
  
- . i love my oomf!! yes scag im talking about you
+ . i love my oomf!! i love her !! very cool person! baku!! @lastbossgooner (im questioning that user...)
  
  . int evangelion , girls last tour , tshd !
  
