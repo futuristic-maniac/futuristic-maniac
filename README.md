@@ -1,4 +1,4 @@
-*## straightaphobes dni haha (i support lgbt)
+## straightaphobes dni haha (i support lgbt)(you guys know who im telling ts to)
 <img width="1280" height="182" alt="Image" src="https://github.com/user-attachments/assets/996c22b0-dec1-4a9b-91df-422c240ee144"
  />![Image](https://github.com/user-attachments/assets/c2d8159d-6054-4120-bb70-17a2bea093ff)
  <img width="2048" height="524" alt="Image" src="https://github.com/user-attachments/assets/56215285-6f99-4457-8f50-3116ca3916c0" />
