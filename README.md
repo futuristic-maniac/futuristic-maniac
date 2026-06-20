@@ -19,3 +19,5 @@ bye
 !!!
 
 <img width="900" height="257" alt="Image" src="https://github.com/user-attachments/assets/76d54df0-4bea-49fb-98bf-0256d7601dc0" />
+
+[![Hits](https://hits.sh/GitHub.com/ssunweaver/hits.svg?style=plastic&label=yaoi&color=ffffff&labelColor=007ec6&logo=yaoi)](https://hits.sh/GitHub.com/ssunweaver/hits/)
