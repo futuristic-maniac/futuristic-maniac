@@ -19,4 +19,3 @@ bye
 !!!
 
 
-[![Hits](https://hits.sh/GitHub.com/ssunweaver/hits.svg?style=plastic&label=yaoi&color=ffffff&labelColor=007ec6&logo=yaoi)](https://hits.sh/GitHub.com/ssunweaver/hits/)
