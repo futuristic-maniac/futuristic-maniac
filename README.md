@@ -15,3 +15,11 @@
 
 <details>
   <summary>gifs</summary>
+<img width="498" height="301" alt="Image" src="https://github.com/user-attachments/assets/03ed7416-7774-4248-a472-5c59b4a2fba2" />
+<img width="374" height="292" alt="Image" src="https://github.com/user-attachments/assets/3f950cb4-b5b4-41c8-acec-0394b7043ee1" />
+<img width="498" height="373" alt="Image" src="https://github.com/user-attachments/assets/e2b72af3-48ed-417d-84a7-5744727f9634" />
+<img width="300" height="200" alt="Image" src="https://github.com/user-attachments/assets/037ced9d-2d12-4c9c-ab8d-9aa8a80770f6" />
+<img width="285" height="285" alt="Image" src="https://github.com/user-attachments/assets/f6f2e047-945a-4803-9af3-4a1a0cd15be8" />
+<img width="230" height="230" alt="Image" src="https://github.com/user-attachments/assets/cfc231fa-87a0-4244-8f53-0b81b84ca30f" />
+<img width="300" height="323" alt="Image" src="https://github.com/user-attachments/assets/53d861a5-81da-49da-9ed9-e590c1b89fda" />
+<img width="498" height="373" alt="Image" src="https://github.com/user-attachments/assets/91388452-701b-4df3-a7c1-068f08afa840" />
