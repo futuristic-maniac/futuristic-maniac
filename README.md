@@ -1,5 +1,5 @@
 
-<img width="700" height="400" alt="Image" src="https://github.com/user-attachments/assets/e3957fe1-0867-4e57-ab76-f36c715caab7" />
+<img width="700" height="300" alt="Image" src="https://github.com/user-attachments/assets/250936a2-e385-41e9-b472-e2949bca409a" />
 
 > hello !! my name is nev, but you can call me bug instead ( =＾ω＾) 
 
