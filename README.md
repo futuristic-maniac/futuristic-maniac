@@ -8,5 +8,5 @@
 
 <details>
   <summary>awards !</summary>
-  wipwipwip
+  <img width="1597" height="129" alt="Image" src="https://github.com/user-attachments/assets/a331c729-eb1f-45c3-ba89-64f0237ae3bd" /><img width="1580" height="111" alt="Image" src="https://github.com/user-attachments/assets/dc883303-44a8-42bf-9034-6baf6a8d904d" /><img width="1688" height="162" alt="Image" src="https://github.com/user-attachments/assets/8fc1b909-1583-40f3-84b7-23994426d98b" /><img width="1516" height="122" alt="Image" src="https://github.com/user-attachments/assets/d8144555-555b-4cea-be5d-cd9daadae378" />
 </details>
