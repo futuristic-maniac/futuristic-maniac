@@ -2,7 +2,7 @@
 
 | ♡ | [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Prop+Single&pause=1000&color=375E4BB5&width=435&lines=%22+living+was+amazing+%2C+wasn't+it+%3F+%22;%22+yeah+%2C+it+really+was+.+%22)](https://git.io/typing-svg) | ♡ |
 | :---: | :---: | :---: |
-| <img width="106" height="1300" alt="Image" src="https://github.com/user-attachments/assets/6500069d-d105-4421-8cd2-d6050d0ee4ef" /> | <img width="750" height="345" alt="Image" src="https://github.com/user-attachments/assets/52a2448e-4783-4735-ba5a-b20abf2cef84" /><br><br> bug / nev / yuuri / ena <br><br>  int freely <br><br> <img width="750" height="344" alt="Image" src="https://github.com/user-attachments/assets/f921e845-4e6f-403f-8069-554b27f1668e"  /><br><br>  . ♡ . <br><br> <img width="750" height="345" alt="Image" src="https://github.com/user-attachments/assets/9f883f66-3af3-497d-8807-14212818f624" />  | <img width="106" height="1300" alt="Image" src="https://github.com/user-attachments/assets/603bac15-59ec-422b-a3cf-d623878934d0" /> |
+| <img width="4000" height="50000" alt="Image" src="https://github.com/user-attachments/assets/6d51d213-eecc-403e-b7de-273177cf1a68" /> | <img width="750" height="345" alt="Image" src="https://github.com/user-attachments/assets/b33d8950-42a5-4a6a-98db-0ae39c9162f7" /> <img width="750" height="250" alt="Image" src="https://github.com/user-attachments/assets/48eb30c8-889d-46c8-ba9a-9e7b63562132" /> <img width="750" height="345" alt="Image" src="https://github.com/user-attachments/assets/e5cecd70-5392-47aa-a969-d7bf4a9c9269" />  | <img width="4000" height="50000" alt="Image" src="https://github.com/user-attachments/assets/8e064f02-98a6-406c-85e5-05cd77506c2f" /> |
 
 </div>
 
