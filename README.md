@@ -2,7 +2,7 @@
 
 | ♡ | [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=FFE516E4&width=435&lines=hey+hey+!+my+name+is+bug+%2C+int+freely+!;im+probably+at+hangouts+or+roleplays..;ehehehe+okay+byebye)](https://git.io/typing-svg)| ♡ |
 | :---: | :---: | :---: |
-| <img width="10000" height="90000" alt="Image" src="https://github.com/user-attachments/assets/6d51d213-eecc-403e-b7de-273177cf1a68" /> | <img width="750" height="250" alt="Image" src="https://github.com/user-attachments/assets/b33d8950-42a5-4a6a-98db-0ae39c9162f7" /> <img width="750" height="250" alt="Image" src="https://github.com/user-attachments/assets/48eb30c8-889d-46c8-ba9a-9e7b63562132" /> <img width="750" height="250" alt="Image" src="https://github.com/user-attachments/assets/e5cecd70-5392-47aa-a969-d7bf4a9c9269" />  | <img width="10000" height="90000" alt="Image" src="https://github.com/user-attachments/assets/8e064f02-98a6-406c-85e5-05cd77506c2f" /> |
+| <img width="123" height="623" alt="Image" src="https://github.com/user-attachments/assets/6d51d213-eecc-403e-b7de-273177cf1a68" /> |  <img width="736" height="623" alt="Image" src="https://github.com/user-attachments/assets/28edf1c0-1faf-41b4-8417-e1d63dd573b2" />  | <img width="123" height="623" alt="Image" src="https://github.com/user-attachments/assets/8e064f02-98a6-406c-85e5-05cd77506c2f" /> |
 
 </div>
 
