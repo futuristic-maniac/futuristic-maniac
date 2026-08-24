@@ -1,8 +1,8 @@
 <div align="center">
 
-| ♡ | [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=FFE516E4&width=435&lines=hey+hey+!+my+name+is+bug+%2C+int+freely+!;im+probably+at+hangouts+or+roleplays..;ehehehe+okay+byebye)](https://git.io/typing-svg)| ♡ |
+| ♡ | [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=F4D0DE&width=435&lines=hey+hey+!+my+name+is+bug+%2C+int+freely+!;im+probably+at+hangouts+or+roleplays..;ehehehe+okay+byebye)](https://git.io/typing-svg)| ♡ |
 | :---: | :---: | :---: |
-| <img width="123" height="623" alt="Image" src="https://github.com/user-attachments/assets/6d51d213-eecc-403e-b7de-273177cf1a68" /> |  <img width="736" height="623" alt="Image" src="https://github.com/user-attachments/assets/28edf1c0-1faf-41b4-8417-e1d63dd573b2" />  | <img width="123" height="623" alt="Image" src="https://github.com/user-attachments/assets/8e064f02-98a6-406c-85e5-05cd77506c2f" /> |
+| <img width="123" height="523" alt="Image" src="https://github.com/user-attachments/assets/6d51d213-eecc-403e-b7de-273177cf1a68" /> |  <img width="498" height="498" alt="Image" src="https://github.com/user-attachments/assets/f1feec52-10f9-40da-8ba3-42f40269066d" />  | <img width="123" height="523" alt="Image" src="https://github.com/user-attachments/assets/8e064f02-98a6-406c-85e5-05cd77506c2f" /> |
 
 </div>
 
