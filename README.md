@@ -1,14 +1,6 @@
-<div align="center">
 
-| ♡ | [![Typing SVG](https://readme-typing-svg.demolab.com?font=DynaPuff&pause=1000&color=F4D0DE&width=435&lines=hey+hey+!+my+name+is+mio+%2C+int+freely+!;im+probably+at+hangouts+or+roleplays..;ehehehe+okay+byebye)](https://git.io/typing-svg)| ♡ |
+| | | |
 | :---: | :---: | :---: |
-| <img width="123" height="498" alt="Image" src="https://github.com/user-attachments/assets/6d51d213-eecc-403e-b7de-273177cf1a68" /> | <img width="498" height="498" alt="Image" src="https://github.com/user-attachments/assets/161f8ca0-739b-467f-9dd6-33901a2f5552" /> | <img width="123" height="498" alt="Image" src="https://github.com/user-attachments/assets/8e064f02-98a6-406c-85e5-05cd77506c2f" /> |
+| <img width="382" height="3208" alt="Image" src="https://github.com/user-attachments/assets/55403cb1-5f2c-4fe1-b7db-e843aea86bb9" /> | <p align="center"><img width="736" height="161" alt="Image" src="https://github.com/user-attachments/assets/efe7eb35-246e-4fe3-9cea-d6e145c8e895" /></p><br><br><img width="250" height="300" alt="Image" src="https://github.com/user-attachments/assets/80ee91e1-e1ff-489d-a904-6dc559d7372c"  align="left" style="margin-right: 15px;" />**$\color{#F0D0D3}{\text{hey hey! call me mio (*￣▽￣)ノ~~ ♪}}$**<br>$\color{#D6A1AD}{\text{ im probably at hangouts or rp's }}$ $\color{#CB8182}{\text{i LOVE vy2/yuuma hes the best vocaloid TRUST!!}}$ $\color{#CB9981}{\text{i like pjsk, nichijou, touhou and vocal synthss }}$ <br clear="all" /><br><p><img width="729" height="94" alt="Image" src="https://github.com/user-attachments/assets/8d9b9b7f-a09d-4d05-aaa9-0608eed7a088" /></p></p><br><img width="250" height="300" alt="Image" src="https://github.com/user-attachments/assets/2718eda8-e56f-4d2c-998e-0126ecce0d44"  width="180" align="right" style="margin-left: 15px;" /> **$\color{#6AA160}{\text{i listen to maretu mostly yeahh}}$**<br>$\color{#FF5733}{\text{}}$<br clear="all" /><br><p align="center"><img width="736" height="161" alt="Image" src="https://github.com/user-attachments/assets/1e636e85-e8f4-42b2-a465-f95e05558101" /></p> | <img width="382" height="3208" alt="Image" src="https://github.com/user-attachments/assets/0c53274c-a463-4725-b43a-a0abc6a70d4f" /> |
 
-</div>
-
-<details>
-  <summary>awards !</summary>
-  <img width="1597" height="129" alt="Image" src="https://github.com/user-attachments/assets/a331c729-eb1f-45c3-ba89-64f0237ae3bd" /><img width="1580" height="111" alt="Image" src="https://github.com/user-attachments/assets/dc883303-44a8-42bf-9034-6baf6a8d904d" /><img width="1688" height="162" alt="Image" src="https://github.com/user-attachments/assets/8fc1b909-1583-40f3-84b7-23994426d98b" /><img width="1516" height="122" alt="Image" src="https://github.com/user-attachments/assets/d8144555-555b-4cea-be5d-cd9daadae378" /><img width="2106" height="165" alt="Image" src="https://github.com/user-attachments/assets/2d535841-e87d-40bc-a71a-8608d88e38d8" /><img width="2211" height="163" alt="Image" src="https://github.com/user-attachments/assets/9d5f6ce9-1c3b-45fe-9bd6-e36889e58dd6" />
-</details>
-
-
+ok um wip ok ill finish this soon i promise
